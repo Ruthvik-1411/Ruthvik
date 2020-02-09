@@ -1,2 +1,0 @@
-# Ruthvik
-Student 
